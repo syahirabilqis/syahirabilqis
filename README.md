@@ -1,6 +1,8 @@
-<div align="center"><img src="https://media.tenor.com/YM8Qh6lQ6mQAAAAi/moon-stars.gif" width="120"/> ˚₊‧꒰ა Syahira Bilqis Humaira ໒꒱ ‧₊˚
+<div align="center"><img src="https://media.tenor.com/YM8Qh6lQ6mQAAAAi/moon-stars.gif" width="120"/>˚₊‧꒰ა Syahira Bilqis Humaira ໒꒱ ‧₊˚
 
-"collecting little achievements, one step at a time."
+*"collecting little achievements, one step at a time."*
+
+</div>
 
 </div>🖤 About Me
 
@@ -12,7 +14,7 @@
 
 ୨୧ Matcha, late-night coding, and cute aesthetics ☾
 
----
+──────────────୨ৎ──────────────
 
 ♡ Connect With Me
 
