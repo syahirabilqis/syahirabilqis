@@ -21,6 +21,7 @@
 - Instagram: @angel.iist
 - LinkedIn: Syahira Bilqis Humaira
 - Email: syahirabilqishumaira@gmail.com
+- X: @sleepyiepp
 
 ---
 
