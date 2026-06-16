@@ -1,4 +1,4 @@
-<div align="center"><img src="https://media.tenor.com/YM8Qh6lQ6mQAAAAi/moon-stars.gif" width="120"/>˚₊‧꒰ა Syahira Bilqis Humaira ໒꒱ ‧₊˚
+<div align="center"><img src="https://media.tenor.com/YM8Qh6lQ6mQAAAAi/moon-stars.gif" width="100"/>˚₊‧꒰ა Syahira Bilqis Humaira ໒꒱ ‧₊˚
 
 *"collecting little achievements, one step at a time."*
 
