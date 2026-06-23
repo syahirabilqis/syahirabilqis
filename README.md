@@ -1,18 +1,20 @@
 <div align="center"><img src="https://media.tenor.com/YM8Qh6lQ6mQAAAAi/moon-stars.gif" width="140"/>˚₊‧꒰ა Syahira Bilqis Humaira ໒꒱ ‧₊˚
 
-*"collecting little achievements, one step at a time."*
+*"be yourself."*
 
 </div>
 
 </div>🖤 About Me
 
-୨୧ Learning and building little projects
+୨୧ Just a student figuring things out one step at a time
 
-୨୧ Interested in web development & design
+୨୧ Currently learning coding and design
 
-୨୧ Trying to improve every day
+୨୧ Dreaming of traveling the world someday ✈️
 
-୨୧ Matcha, late-night coding, and cute aesthetics ☾
+୨୧ Hoping to become a translator in the future
+
+୨୧ Loves languages, matcha, and cute things ☾
 
 ──────────────୨ৎ──────────────
 
